@@ -1,1 +1,1 @@
-.Valdyum Labs
+Valdyum Labs
